@@ -22,4 +22,4 @@ Sarcasm, irony, and creative profanity are most welcome — provided they serve 
 ### Spirit of the Agreement
 Above all, this declaration is born of a desire for real dialogue — not performance, not pageantry, not the passive-aggressive theatre of modern discourse. I value authenticity over diplomacy, growth over ego, and relationships rooted in respect rather than ritual.
 
-[Share on X](https://twitter.com/intent/tweet?text=I+stand+by+this+declaration+of+candour+%F0%9F%91%87&url=https%3A%2F%2Fyoucancallmeanasshole.org)
+[Share on X](https://twitter.com/intent/tweet?text=I+stand+by+this+declaration+of+candour+%F0%9F%91%87&url=https%3A%2F%2Fyoucancallmeanasshole.org) | [Share on LinkedIn](https://www.linkedin.com/sharing/share-offsite/?url=https%3A%2F%2Fyoucancallmeanasshole.org)
